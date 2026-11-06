@@ -220,4 +220,4 @@ RogueKiller is available as a **full free version** with all features and update
 Take control of your computer's security today—**download RogueKiller free** and enjoy comprehensive protection!
 
 ---
-**Last updated:** 2026-11-06 00:45:39 UTC
+**Last updated:** 2026-11-06 07:40:06 UTC
